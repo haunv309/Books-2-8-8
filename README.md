@@ -6,3 +6,4 @@ by Akar
 
 To using this, email me at haunv.it@gmail.com
 Support me at: brave.com/hau526
+Thank you
